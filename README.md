@@ -2,7 +2,7 @@
 *(or: how to avoid being ruled by the wrong people)*
 
 **Power attracts the wrong people.**  
-People who seek control, visibility, dominance. Not always—but often enough that it causes harm.
+People who seek control, visibility, dominance. Not always, but often enough that it causes harm.
 
 The people we *do* trust are busy doing other things: caring, teaching, building, listening. They don’t want to rule.
 
@@ -40,7 +40,7 @@ Don’t chase control. But do step in when someone’s being harmed.
 This isn’t a brand. It’s a pattern. Let it stay pattern-shaped.
 
 **7. Notice the Tower.**  
-When power clusters—around money, charisma, hierarchy—pause. Ask:  
+When power clusters—around money, charisma, hierarchy, pause a little. Ask:  
 Is this necessary? Is it accountable?
 
 **8. Hold, don’t grab.**  
