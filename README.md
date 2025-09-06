@@ -51,6 +51,9 @@ Stay aware of what it’s doing to you.
 Most large power only works because people go along with it.  
 When things go wrong, you can stop. Even a pause is a kind of resistance.
 
+**10. Call out wounded egos.**
+Many people act badly to protect themselves: they diminish others, dominate discussions, claim hero roles, vanish when work gets hard and unglamorous, or spin events to shift blame. Notice it, and when necessary, call out the behavior calmly and factually in front of those affected — not to shame, but to protect the innocent, including yourself.
+
 ---
 
 You can do all this while living a full life. Raising kids. Working. Sitting on a bench.  
