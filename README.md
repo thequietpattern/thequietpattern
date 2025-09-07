@@ -5,7 +5,7 @@
 **Power attracts the wrong people.**  
 People who seek control, visibility, dominance. Not always, but often enough that it causes harm.
 
-The people we *do* trust are busy doing other things: caring, teaching, building, listening. They don’t want to rule, do they don't.
+The people we *do* trust are busy doing other things: caring, teaching, building, listening. They don’t want to rule, so they don't.
 
 Most systems meant to fix this just create a new kind of throne. A new game for the same kind of player.
 
