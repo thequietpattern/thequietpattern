@@ -38,7 +38,7 @@ Don’t chase control. But do step in when someone’s being harmed by it.
 This isn’t a brand. It’s a pattern. Let it stay pattern-shaped.
 
 **7. Notice the Towers.**  
-When power clusters—around money, charisma, looks, skill, or hierarchy, pause a little. Ask: Is this necessary? Is it accountable?
+When power clusters around money, charisma, looks, skill, or hierarchy, pause a little. Ask: Is this necessary? Is it accountable?
 
 **8. Hold, don’t grab.**  
 If power flows to you, hold it lightly. Share it. Pass it along. Stay aware of what it’s doing to you.
