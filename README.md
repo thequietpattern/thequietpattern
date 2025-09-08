@@ -31,7 +31,7 @@ If someone might understand this idea, you can tell them about it. No pressure.
 **4. Don’t build up. Build out.**  
 Avoid central hubs. Avoid hierarchy. Think rhizomes, not pyramids.
 
-**5. Ignore power. Protect people.** 
+**5. Ignore power. Protect people.**  
 Don’t chase control. But do step in when someone’s being harmed by it.
 
 **6. Don’t name it too much.**  
