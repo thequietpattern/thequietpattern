@@ -47,7 +47,7 @@ If power flows to you, hold it lightly. Share it. Pass it along. Stay aware of w
 Most large power only works because enough people go along with it. When things go wrong, you can withdraw. Even a pause is a kind of resistance.
 
 **10. Call out wounded egos.**
-Many people act badly to protect themselves: they diminish others, dominate discussions, claim hero roles, vanish when work gets hard and unglamorous, second-guess initiatives, or spin events to shift blame. Notice it, and when necessary, call out the behavior calmly and factually in front of those affected — not to shame, but to protect the innocent, including yourself.
+Many people act badly to protect themselves: they diminish others, dominate discussions, claim hero roles, vanish when work gets hard and unglamorous, second-guess initiatives, or spin events to shift blame. Notice it, and when necessary, call out the behavior calmly and factually in front of those affected. You're not doing this to shame, but to protect the innocent, including yourself.
 
 ---
 
